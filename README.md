@@ -4,6 +4,7 @@ Team Members:
 
 Minh Vu
 
+Zoe Smith
 
 
 
